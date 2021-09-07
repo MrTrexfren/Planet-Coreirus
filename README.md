@@ -1,1 +1,1 @@
-game is still in the making
+The game has finally been released. There will be more Creatures added but those are in future updates. Choose a Creature before you start or else it will glitch. If there are any bugs message me on discord: covesghe#1236
